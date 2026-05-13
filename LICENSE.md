@@ -1,4 +1,4 @@
-# 
+# secure liquidation sniper bot Tool | grid-trading + low-frequency offers the most advanced liquidation sniper bot, with grid-trading and low-frequency. Ideal for professional
 
 
 
